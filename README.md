@@ -1,3 +1,5 @@
+![https://oscimg.oschina.net/oscnet/483bc3e33b3e2f3dc53dca38b68d70c4e64.jpg](https://oscimg.oschina.net/oscnet/483bc3e33b3e2f3dc53dca38b68d70c4e64.jpg)
+
 # 吐槽
 
 - [这个外包有点惨](https://www.v2ex.com/t/539018?p=1)
