@@ -12,6 +12,7 @@
 - [国企开发岗进去天天高强度加班，被吓到了](https://www.v2ex.com/t/852956)
 - [聊一聊糟心的华为 OD offer](https://v2ex.com/t/863240)
 - [被滨江四坑之一裁了并且不给 n+1](https://v2ex.com/t/939279)（杭州四大坑：海康、大华、恒生、同花顺）
+- [外包本色](https://www.bilibili.com/video/BV15g84zxEuJ/)（看下评论区，交流）
 
 # 头部垃圾坑
 
